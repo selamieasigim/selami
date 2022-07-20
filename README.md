@@ -1,0 +1,2 @@
+# selami
+Allah varmı 
